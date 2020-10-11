@@ -110,9 +110,6 @@ If you're a pro and have any kind of experience, you know that using shallow dep
   filmmaker is a visual artist. To be a great visual artist you need mastery of the color palette. Many of the greatest Directors, Cinematographers, and Production Designers have extensive backgrounds as visual artists themselves. There are many ways to use color in film. We’re going to break down the key approaches as well as offer you a free E-book. The ebook is an excellent tool for better understanding the use of the color in film, and how to master it.
   ![fdas](https://s.studiobinder.com/wp-content/uploads/2019/06/How-to-Use-Color-in-Film-Movie-Color-Palettes-Cheatsheet-StudioBinder.jpg)
   To show you what we mean, we've put together a handy dandy infographic that you can download for reference. We've grouped the major colors on the color wheel with their most common emotional associations. As you considering color in your next project, it might help to start with the emotional resonance of the scene and base your movie color palette around that.
-  ![dfas](https://s.studiobinder.com/wp-content/uploads/2019/06/How-to-Use-Color-in-Film-Movie-Color-Palettes-Cheatsheet-StudioBinder.jpg)
-  ![fdsa](https://s.studiobinder.com/wp-content/uploads/2019/06/How-to-Use-Color-in-Film-Movie-Color-Palettes-Cheatsheet-StudioBinder.jpg)
-  ![fdsa](https://s.studiobinder.com/wp-content/uploads/2019/06/How-to-Use-Color-in-Film-Movie-Color-Palettes-Cheatsheet-StudioBinder.jpg)
   Color theory norms should be understood by filmmakers, but never seen as a limitation. So, choose your color palettes wisely! Like every other part of filmmaking, you should consider the use of color in film from the very beginning. 
   ### How can color tell a story?
   The primary reason for using color in film might be obvious: to make the images colorful, dynamic, and beautiful. But there is a secondary reason that facilitates visual storytelling. That's right, the best uses of color in film also tell a story. 
@@ -128,7 +125,6 @@ The complementary color scheme, monochromatic color scheme, analogous color sche
 Here's a breakdown of how Wes Anderson uses color in film to balance tone. Specifically, how Anderson tends to have depressed characters dealing with personal trauma while being surrounded by the brightest and most optimistic colors.
 
 ![fdas](https://s.studiobinder.com/wp-content/uploads/2019/06/How-to-Use-Color-in-Film-Color-Palettes-in-Film-Types-of-Color-Schemes-Triadic-Colors-Analogous-Color-Schemes-StudioBinder-Color-Ebook-2.jpg)
-![fdsa](https://s.studiobinder.com/wp-content/uploads/2019/06/How-to-Use-Color-in-Film-Color-Palettes-in-Film-Types-of-Color-Schemes-Triadic-Colors-Analogous-Color-Schemes-StudioBinder-Color-Ebook-2.jpg)
  ### When telling a story, colors:
 
 -Elicit psychological reactions
